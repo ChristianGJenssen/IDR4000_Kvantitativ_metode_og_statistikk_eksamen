@@ -1,0 +1,1 @@
+# IDR4000_Kvantitativ_metode_og_statistikk_eksamen
